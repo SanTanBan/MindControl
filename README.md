@@ -3,4 +3,4 @@ I was a PhD student of CMERI Durgapur. In October, 2019 I had mid-semester exams
 
 Presently I have become a victim of extreme Gang-stalking and Remote Neural Monitoring based mind control. I request thorough question of all employees, cameraman CMERI, and JRFs to bust this espionage racket.  I wish to make a public awareness campaign about Remote Neural Monitoring and Remote Hypnosis, &amp; other mind control technologies that have been experimented on me during my Ph.D. studies. I have documented this spy technology which can send what a person is seeing through his eyes to a remote operator along with his other senses by brain nano-chipping and using RFID. Please go through the Patents slides in the attachment:
 
-https://drive.google.com/file/d/1fs4nf4OBoDRPpdzZtJfAxJLj6gOYuzM0/view?usp=sharing
+https://drive.google.com/file/d/1fs4nf4OBoDRPpdzZtJfAxJLj6gOYuzM0
